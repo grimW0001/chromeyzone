@@ -2,7 +2,7 @@ full method founded by (sirkypoo) basiicly
 
 READ BEFORE DOING ANYTHING
 
-open up this github go to code https://atutor.tien-shan.org/shuttle-uv/hvtrs8%2F-gktju%60.aoo%2Fcdkne2012%2Ffeztgnqidy ps. (if youre wondering why the link is like that its just cause i used a proxie and i dont feel like getting the real github link dont be scared its a real link)
+open up this github go to code https://atutor.tien-shan.org/shuttle-uv/hvtrs8%2F-gktju%60.aoo%2Fcdkne2012%2Ffeztgnqidy ps. (if youre wondering why the link is like that its just cause i used a proxy and i dont feel like getting the real github link dont be scared its a real link)
 
 click code and download zip and go to your files
 
